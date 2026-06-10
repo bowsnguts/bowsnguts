@@ -7,6 +7,8 @@
 
 ⋆ I like to mostly sit idle on Pony Town, though I could always be making skins as well, I don't mind being cuddled, and if you do need me I don't mind being shot a whisper if I seem to be afk, ( Likely chances I won't get back to ya if im asleep :'D }
 
+✩ ; There's time's I am not as social as one is probably expecting, my social battery can run quite low during day's, and i'm quite sorry for that;; { Usually I just need a good 10-15 minutes, to an hour ] So please be patient:>>
+
 ✩ * I'm really into making OC's aswell as writing lore, though i don't currently roleplay ^^'' But if you ever do want to talk just oc's im down for that. I love all my precious babies and have many, many stories on them:>>
 
 ✩ Besides skin making, some hobbies in the real I have do include, drawing/painting, singing, instruments; I can play the acoustic guitar, piano, violin, and i'm learning the flute next ! :D !-- Being a silly-willy, And playing all kinds of video games when I have the time.:> I'm also very big on gardening and animals.
