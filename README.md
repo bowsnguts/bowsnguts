@@ -12,7 +12,7 @@
 
 ✩ - I'm currently in college, majoring to be a psychologist, so please be aware that i can be quite busy at times, so if that's the case, I'd suggest just adding my Discord if you ever find interest. 
 
-✩ * I'm really into making OC's aswell as writing lore, though i don't currently roleplay ^^'' But if you ever do want to talk just oc's im down for that. I love all my precious babies and have many, many stories on them:>>
+✩ * I'm really into making OC's aswell as writing lore, though i don't currently roleplay ^^'' But if you ever do want to talk just oc's im down for that. I love all my precious babies and have many, many in-depth lore on them:>>
 
 ✩ Besides skin making, some hobbies in the real I have do include, drawing/painting, singing, instruments; I can play the acoustic guitar, piano, violin, and i'm learning the flute next ! :D !-- Being a silly-willy, And playing all kinds of video games when I have the time.:> I'm also very big on gardening and animals.
 
