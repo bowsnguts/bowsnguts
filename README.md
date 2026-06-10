@@ -1,12 +1,18 @@
 # - If you had ran across this about me, my guess is you are from PonyTown so haiihaii, lovely to meet ya ! :3 welcome
 - ✩
+
 ⋆｡°✩ i mostly go by noi or opal , but i dont mind any nicknames you have for me ! .⋆｡°✩ they/she prns preffered , i'm italian, mexican as well as black.
+
 ✩ ;; Not too sure of my sexuality as i'm still figuring out, but i like to say im #WuhLuhWuh, just not looking:) { please respect that! } 
 
 ⋆ I like to mostly sit idle on Pony Town, though I could always be making skins as well, I don't mind being cuddled, and if you do need me I don't mind being shot a whisper if I seem to be afk, ( Likely chances I won't get back to ya if im asleep :'D }
+
 ✩ * I'm really into making OC's aswell as writing lore, though i don't currently roleplay ^^'' But if you ever do want to talk just oc's im down for that. I love all my precious babies and have many, many stories on them:>>
+
 ✩ Besides skin making, some hobbies in the real I have do include, drawing/painting, singing, instruments; I can play the acoustic guitar, piano, violin, and i'm learning the flute next ! :D !-- Being a silly-willy, And playing all kinds of video games when I have the time.:> I'm also very big on gardening and animals.
+
 ✩ - I'm currently in college, majoring to be a psychologist so please be aware that i can be quite busy at times, so if that's the case I'd suggest just adding my Discord if you ever find interest. 
+
 ✩ ;; Wondering what else I like and enjoy, well here's a short list ! ;; Collecting, I have a special interest in collecting carousels, sea-shells, colorful rocks, and littlest pet shops !. Some favorite animals of mine include;; frogs, cats, bunnies, deers, giraffes, donkeys, seals and more! { Ask me about animals, I love, love them ! Especially sea animals, Marine biology } 
 
 
