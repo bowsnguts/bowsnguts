@@ -1,3 +1,5 @@
+![tumblr_3a6def887798923b94a7ded9bbf656f9_806da61a_2048](https://github.com/user-attachments/assets/695fe037-b61c-4401-8e81-0d3a0531ad3d)
+
 # - If you had ran across this about me, my guess is you are from PonyTown so haiihaii, lovely to meet ya ! :3 welcome
 - ✩
 
@@ -20,7 +22,7 @@
 
 ✩;; 
 
-˖*°࿐ *ੈ✩‧₊˚ ✧˖*°࿐
+
 
 ⋆｡  interests i have ( fandoms , etc. pls int <3 )
 
