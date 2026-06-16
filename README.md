@@ -6,7 +6,7 @@
 ⋆｡°✩ i mostly go by noi or opal , but i dont mind any nicknames you have for me ! .⋆｡°✩ they/she prns preffered , i'm italian, mexican as well as black. {21} ;; { Nov. 9th } { 04 }. 
 
 
-✩ ;; Not too sure of my sexuality as i'm still figuring out, but i like to say im Bi/Pan just maybe a more female lean, just not looking:) { please respect that! } 
+✩ ;; Not too sure of my sexuality as i'm still figuring out, but i like to say im Bi/Pan just maybe a more female lean, aswell not looking:) { please respect that! } 
 
 ⋆ I like to mostly sit idle on Pony Town, rather its just time farming, or watching YouTube! I don't mind being cuddled, and if you do need me I don't mind being shot a whisper if I seem to be afk, ( Likely chances I won't get back to ya if im asleep :'D .. Or the whisper was very strange to me. } 
 
