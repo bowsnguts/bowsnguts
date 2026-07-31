@@ -106,9 +106,9 @@
 yuhh thats it, anyways pls be moots with me im so cool and epic and and , yeees 🥳
 
  ´ˎ ˗ ❁˖⁺‧₊˚❁˚₊‧⁺˖˖⁺‧₊˚
- ![image_2025-03-15_132331707](https://github.com/user-attachments/assets/a8a6ee69-2a33-46fe-b218-a649c8c1580f)
+ 
 
- ´ˎ ˗ ❁˖⁺‧₊˚❁˚₊‧⁺˖˖⁺‧₊˚ they are me by the way<3 ( comfort chars ) ^_^
+ ´
 
 ![tumblr_3a6def887798923b94a7ded9bbf656f9_806da61a_2048](https://github.com/user-attachments/assets/695fe037-b61c-4401-8e81-0d3a0531ad3d)
 
