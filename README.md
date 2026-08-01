@@ -14,11 +14,11 @@
 
 ✩ - I'm currently in college, majoring to be a psychologist, so please be aware that i can be quite busy at times, so if that's the case, I'd suggest just adding my Discord if you ever find interest. 
 
-✩ * I'm really into making OC's aswell as writing lore, though i don't currently roleplay ^^'' But if you ever do want to talk just oc's im down for that. I love all my precious babies and have many, many in-depth lore on them:>>
+✩ * I'm really into making OC's aswell as writing lore, though I don't currently roleplay unless I know the person;; I prefer friend's or someone I have a bit of a connection with. rather it dwells into normal roleplay, or erotic. 
 
 ✩ Besides skin making, some hobbies in the real I have do include, drawing/painting, singing, instruments; I can play the acoustic guitar, piano, violin, and i'm learning the flute next ! :D !-- Being a silly-willy, And playing all kinds of video games when I have the time.:> I'm also very big on gardening and animals.
 
-✩ ;; Wondering what else I like and enjoy, well here's a short list ! ;; Collecting, I have a special interest in collecting carousels, sea-shells, colorful rocks, and littlest pet shops !. Some favorite animals of mine include;; frogs, cats, bunnies, deers, giraffes, donkeys, seals and more! { Ask me about animals, I love, love them ! Especially sea animals, Marine biology } 
+✩ ;; Wondering what else I like and enjoy, well here's a short list ! ;; Collecting, I have a special interest in collecting carousels, sea-shells, colorful rocks, and littlest pet shops !. Some favorite animals of mine include;; frogs, cats, bunnies, deers, giraffes, donkeys, seals and more! { Ask me about animals, I love, love them ! Especially sea animals, marine biologist was my second pick  } 
 
 ✩;; 
 
