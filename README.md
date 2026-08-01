@@ -12,9 +12,9 @@
 
 ✩ ; There's time's I am not as social as one is probably expecting, my social battery can run quite low during day's, and i'm quite sorry for that;; { Usually I just need a good 10-15 minutes, to an hour ] So please be patient:>>
 
-✩ - I'm currently in college, majoring to be a psychologist, so please be aware that i can be quite busy at times, so if that's the case, I'd suggest just adding my Discord if you ever find interest. 
+✩ - I'm currently in college, majoring and studying to be a psychologist, so please be aware that i can be quite busy at times, so if that's the case, I'd suggest just adding my Discord if you ever find interest. 
 
-✩ * I'm really into making OC's aswell as writing lore, though I don't currently roleplay unless I know the person;; I prefer friend's or someone I have a bit of a connection with. rather it dwells into normal roleplay, or erotic. 
+✩ * I'm really into making OC's aswell as writing lore, though I don't currently roleplay unless I know the person;; I prefer friend's or someone I have a bit of a connection with. rather it dwells into normal roleplay, or anything else of that nature 
 
 ✩ Besides skin making, some hobbies in the real I have do include, drawing/painting, singing, instruments; I can play the acoustic guitar, piano, violin, and i'm learning the flute next ! :D !-- Being a silly-willy, And playing all kinds of video games when I have the time.:> I'm also very big on gardening and animals.
 
